@@ -1,0 +1,1 @@
+ My name is Rohith and I'm from tiruvannamalai. I completed my computer science engineer degree in Hindustan university. I chose my career path as devops is because of my interest towards cloud related things and i hope i'll get a good job. Thank you!
